@@ -1,5 +1,5 @@
 # focus_songs
-Collection of songs help me focus and not sleep at work!
+Songs may help you focus and not sleep at work!
 
 # AVB - State of Trance
 https://www.youtube.com/watch?v=ZVRgd6YQoRU
