@@ -24,6 +24,8 @@ https://www.youtube.com/watch?v=QS05Wq8irLI
 
 https://www.youtube.com/watch?v=z8bl9ZEwaPU
 
+https://www.youtube.com/watch?v=BqqCgKzGQrw
+
 # Miscellaneous
 https://www.youtube.com/watch?v=cZpIDOXYxbU
 
